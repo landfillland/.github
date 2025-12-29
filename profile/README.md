@@ -1,20 +1,26 @@
-你可以选择变得开心起来，但快乐并不是你应得的。
+You may choose to become happy—but happiness is not something you are owed.
 
-你也可以选择接受审判，但它让你感到恐惧。
+You may also choose to accept judgment, yet it fills you with fear.
 
-当你身处这种两难的境地，你只会觉得自己实际上并没有选择权。
+When trapped in such a dilemma, you can only feel that, in truth, you have no real choice at all.
 
-不过，假设你必须做出选择的话，假设你真能看到摆在你面前的是两条清晰但不同的道路,  
-而不是一条路蒙眼走到黑，这个时候……  
+But suppose you *must* choose.  
+Suppose you can truly see two distinct paths laid out before you,  
+rather than walking blindfolded down a single road into darkness—  
+then, at that moment…  
 
-你会做何选择?
+What would you choose?
 
-前路不明的时代结束了。飘渺不定与悲天悯人的时代已是历史，由一位愚者一手造就的时代已经过去。
+The age of uncertainty has come to an end.  
+The era of drifting illusions and sorrowful compassion has passed into history;  
+the age forged by a single fool is now over.  
 
-视野不再狭窄，飞过半边天的云也已变得稀薄。
+The horizon is no longer narrow, and the clouds that once covered half the sky have thinned.
 
-星光黯淡了下来，阳光也不再明媚。
+Starlight has dimmed, and sunlight no longer shines so brightly.
 
-受束缚的她最大的心愿，便是在绝望的高崖之上饱受苦痛折磨，但这样的愿望并不会实现。
+Her greatest wish, bound as she is,  
+was to suffer in agony atop a cliff of despair—  
+yet such a wish will never be fulfilled.  
 
-相反地，她得到了选择的权利。
+Instead, she was granted the right to choose.
