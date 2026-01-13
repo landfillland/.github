@@ -1,9 +1,3 @@
-<div align="left" >
-  <img src="https://raw.githubusercontent.com/LandfillLand/.github/refs/heads/main/img/IMG_20260114_005000.png" width="2520">
-</div>
-
-# 
-
 你可以选择变得开心起来，但快乐并不是你应得的。
 
 你也可以选择接受审判，但它让你感到恐惧。
